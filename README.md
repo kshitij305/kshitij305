@@ -1,5 +1,12 @@
 ### Hi there friends 👋
 
+**My name is Kshitij Bansod, i finished my graduation in the year 2022, i have interest in programming, looking forward to learn and grow here on github**
+
+***Thank You***
+
+![Kshitijlatest](https://github.com/kshitij305/kshitij305/assets/137696719/b07567c4-fb97-4223-8f14-75e189f22aaf)
+
+
 <!--
 **kshitij305/kshitij305** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

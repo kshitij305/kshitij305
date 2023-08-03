@@ -1,6 +1,6 @@
 ### Hi there friends 👋
 
-**My name is Kshitij Bansod, i finished my graduation in the year 2022, i have interest in programming, looking forward to learn and grow here on github**
+**My name is Kshitij Bansod, i finished my graduation in the year 2022, i have interest in programming and learning programming, looking forward to learn and grow here on github**
 
 ***Thank You***
 

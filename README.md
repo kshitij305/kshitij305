@@ -3,7 +3,7 @@
 **My name is Kshitij Bansod, i finished my graduation in the year 2022, i have interest in programming and learning programming, looking forward to learn and grow here on github**
 
 ***Thank You***
-![Kshitij2](https://github.com/kshitij305/kshitij305/assets/137696719/c4908e94-ec0d-421c-9543-1c282c3d51d8)
+![Kshitijlatest](https://github.com/kshitij305/kshitij305/assets/137696719/1a33c8b3-72dc-49f5-8014-5e69cdd04827)
 
 
 <!--

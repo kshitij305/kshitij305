@@ -2,7 +2,8 @@
 
 **My name is Kshitij Bansod, i finished my graduation in the year 2022, i have interest in programming and learning programming, looking forward to learn and grow here on github**
 
-![Kshitijlatest](https://github.com/kshitij305/kshitij305/assets/137696719/1a33c8b3-72dc-49f5-8014-5e69cdd04827)
+![Picsart_24-03-20_23-06-57-138](https://github.com/kshitij305/kshitij305/assets/137696719/4be11060-a21a-4e20-9d5d-de47996b2a74)
+(https://github.com/kshitij305/kshitij305/assets/137696719/1a33c8b3-72dc-49f5-8014-5e69cdd04827)
 
 ***Thank You*** , ***My Pleasure*** , ***Best of luck everyone***
 

@@ -2,8 +2,7 @@
 
 **I am Kshitij Bansod, Mechanical Engineer by Degree, Software Developer by Mind and Skills, Learning how the things actually work in these Technological Universe**
 
-![Picsart_24-03-20_23-06-57-138](https://github.com/kshitij305/kshitij305/assets/137696719/4be11060-a21a-4e20-9d5d-de47996b2a74)
-(https://github.com/kshitij305/kshitij305/assets/137696719/1a33c8b3-72dc-49f5-8014-5e69cdd04827)
+![best image](https://github.com/kshitij305/kshitij305/assets/137696719/245a14fc-6634-4abd-ac6f-5e9a2c7e6169)
 
 ***Thank You for visiting here*** , ***It's My Pleasure and Privilege*** , ***Best of luck everyone and once again Thank You***
 

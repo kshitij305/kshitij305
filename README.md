@@ -1,11 +1,21 @@
-### Hi there friends 👋
 
-**I am Kshitij Bansod, Mechanical Engineer by Degree, Software Developer by Mind and Skills, Learning how the things actually work in these Technological Universe**
+👋 Hi, I'm Kshitij Bansod!
 
-![new modified image](https://github.com/kshitij305/kshitij305/assets/137696719/6d69e9f1-7c27-4dba-a9bf-a2a07c4e377a)
+🌐 Aspiring Web Developer with a passion for creating user-friendly and responsive websites.
+
+💻 Proficient in HTML, CSS, and JavaScript, and always eager to learn new technologies and improve my skills.
+
+🔧 Currently working on personal projects to build my portfolio and contribute to open-source initiatives.
+
+🚀 Interested in front-end development and excited to explore full-stack development in the future.
+
+📫 Let's connect! Feel free to reach out to me via [kshitijbansod123@gmail.com] or check out my projects below.
+
+![image](https://github.com/user-attachments/assets/f8957e9e-41f5-4af7-b26b-af02c00d3397)
 
 
-***Thank You for visiting here*** , ***It's My Pleasure and Privilege*** , ***Best of luck everyone and once again Thank You***
+🙏 Thank you for visiting my profile! I appreciate your interest in my work. Let's code and build something amazing together!
+***
 
 
 

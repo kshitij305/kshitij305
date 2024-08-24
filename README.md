@@ -11,7 +11,8 @@
 
 📫 Let's connect! Feel free to reach out to me via [kshitijbansod123@gmail.com] or check out my projects below.
 
-![image](https://github.com/user-attachments/assets/f8957e9e-41f5-4af7-b26b-af02c00d3397)
+![New pic(kshitij)](https://github.com/user-attachments/assets/d47f9567-6843-4d7f-89a8-128ce17b8ba9)
+
 
 
 🙏 Thank you for visiting my profile! I appreciate your interest in my work. Let's code and build something amazing together!
